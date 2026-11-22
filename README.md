@@ -1,16 +1,58 @@
-## Hi there 👋
+<div align="center">
+  
+## SIGN MY DUMB ATABOOK x
+  
+my main fandm/interest are currently Napoleonic wars , British-Revolution ( the English Revolution of all century )  , maybe gnb aswell.
 
-<!--
-**RAP1DHEARTB3AT/RAP1DHEARTB3AT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Arthur Wellesley ONLY FAN AND NOBODY ELSES 😡😡😡😡😡/satire.
 
-Here are some ideas to get you started:
+##
+![](https://64.media.tumblr.com/6f647fdea1e50113e758ee259529b773/606eadf41773d766-c5/s1280x1920/c3ca3ec4cf0145b91ebf4fe97ae6acc50c5f0d3d.jpg)
+##
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## BRITANNIA!!
+
+Happy Suicide Prevention Month
+
+I go by barry and Travis , whatever suits you best.
+I spend most of my pathetic life in COUNTRYHUMANS Area,you can find me there.
+
+Hihi hi guys please check out my Kins and Irls , [barry's awsome insert](https://rentry.co/barrysirlsandkins)
+**Before you decided to be friends with me do take note that i have an unstable mental health issues so moodswings can happen anytime!, i am attached easily and i get upset alot but i can try to control it if you're not comfortable! just tell me!!**
+
+Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,READ about WHAT he has done and taken away of.Yall cant even read BASIC history like how WW1 started too im genuinely crying/srs
+**Napolington , FRUK** shippers please please please iwec , you guys are on Thin ice , or dni at all.
+
+IF **you cuddle with me** with an intend of shipping then please dont.
+
+-AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
+- ***AVOID talking about ships.I strictly do not want to show ship any characters weither if its from GNB,COUNTRYHUMANS or any other fandoms im in, and do not ship real historical people,i do not condone any of it.Although i do art of oc x canon but i still dont think itll be okay for it to be the main focus,Thank you.***
+
+## i mostly use unserious skin.
+
+W2i is needed because i offtab alot.
+cuddles is allowed 
+do not be afraid to approach or to c+h me 
+
+## Main Interest
+**Napoleonic War** + Other Histories
+
+games i only play (**Roblox**/Steam/itch.io/**CDS**. ; PS&**PC** ) - **L&C** , **Guts and Blackpowder** , Blood & Iron , British War . Napoelonic war simulation , **Napoleon: Total War** , **Grand Tactician: Napoleonic Wars**  , Holdfast: Nations At War
+
+int if you must,you can moot me idm
+
+## DOCUMENTS AND A PIECE OF WHAT NAPOLEON HAD DONE (BAD) :
+
+[Negative affects Of Napoleon](https://brainly.in/question/58415609#:~:text=However%2C%20there%20were%20also%20negative,liberties%20and%20limited%20political%20freedoms.) ,
+[Negative Effects Of Napoleon2](https://www.bartleby.com/essay/Negative-Effects-Of-Napoleon-FJ3F5LWQ9X6) ,
+[Napoleon re-stablishment of slavery](https://www.napoleon.org/en/history-of-the-two-empires/articles/napoleon-the-dark-side-napoleons-re-establishement-of-slavery-2-min-read/) ,
+[Napoleon unfair gender equality](https://www.napoleon.org/en/history-of-the-two-empires/articles/napoleon-the-dark-side-napoleon-and-women-4-min-read/)
+##
+OR YOU CAN READ HIS HISTORY ALONE :
+[5MINHISTORY](https://fiveminutehistory.com/posts/napoleon-hero-or-tyrant/#:~:text=For%20instance%2C%20Napoleon%20reintroduced%20slavery,nothing%20to%20advance%20gender%20equality.)
+
+</div>
+
+##
+![](https://64.media.tumblr.com/3b3a16808af090e1cedfc9d580e04310/2d7a563e31a92c2a-16/s250x400/a6017e4fe3debef27a74d5199829000d16585687.gifv) ![](https://64.media.tumblr.com/9af5c2326c347d3cade3e1cb7ad63f6f/0592c647ab427b24-3d/s400x600/f9196901b60650b977d64003c56ff3d26e486c96.gifv)
+![](https://64.media.tumblr.com/edaaa0ea6484d1b12e1db1de85b40945/95ea8714ed94f93d-93/s400x600/a9e0ba230bd42aa0d6eaa824d7048cc3d0a6dd1f.gifv) 
